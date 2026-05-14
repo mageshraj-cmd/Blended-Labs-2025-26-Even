@@ -2,8 +2,8 @@
 
 ## Author
 
-* **Name**: Sushil Shiva R
-* **Register Number**: 212224250017
+* **Name**: MAGESHRAJ P
+* **Register Number**: 212224250010
 
 ---
 
